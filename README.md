@@ -1,1 +1,1 @@
-# pixelmonlegends.github.io
+# pixelmonlegends
